@@ -24,7 +24,7 @@ As a freelance Photographer/Videographer I provide a wide spectrum of visual ser
 
 
 
-- This project I shot for a pretty much famous rapper, who goes by the name "Earth"
+- This project I shot for a pretty much famous rapper, who goes by the name "Earth". The main topic of my work was to capture moments and publishable content for promotion of this concrete music video
 - A short description about the significance of the project — *the whys*.
 - A short description about the outcome of the project — *the result or takeaway*.
 
