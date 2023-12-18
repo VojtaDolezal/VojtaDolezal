@@ -24,9 +24,19 @@ As a freelance Photographer/Videographer I provide a wide spectrum of visual ser
 
 
 
-- This project I shot for a pretty much famous rapper, who goes by the name "Earth". The main topic of my work was to capture moments and publishable content for promotion of this concrete music video
-- A short description about the significance of the project — *the whys*.
-- A short description about the outcome of the project — *the result or takeaway*.
+- This project I shot for a pretty much famous rapper, who goes by the name "Earth". The main topic of my work was to capture moments and publishable content for promotion of this concrete music video. The shoot itself took us about 23 hours in total, so it was quite exhausting. But we handled it anyways. The topic of the song and music video is descripted by its name "HLUK", which in translation means "loud noise".
+  
+- Photos created with the relation to the topic of music video, because it teases the artists fans and viewers to stay tuned for the soon outcoming project, because it is important to draw people's attention to a project, because the artist wants to make money out of this project and the revenue is based on the number of views, because he has to make a living somehow.
+- My output of this project was about 50 photos made simply as a memory of the day and about 8 photos for a promotional purposes. During the long day of making I realized that when there is passion, the time and tiredness are irrelevant, you just keep going.
+
+  ### P3 Logistic Parks Ostrava - Grand opening
+   ![DSC02782](https://github.com/VojtaDolezal/VojtaDolezal/assets/149472633/58014398-38a0-4a18-975f-ab8fa22df68c)![DSC02105](https://github.com/VojtaDolezal/VojtaDolezal/assets/149472633/ac801511-9443-41ea-927e-53a625121473)
+
+  - P3 Logistic Parks opening was a huge gala corporate event, filled with an entertainment program such as cosplay models and rope dance performers. The company celebrated an opening of 44 000 square meters filled with 12 warehouses, which are going to be rented to other huge companies for storage purposes.
+  - My job was to capture moments of the fabulous night. So the client has a content for the great news. Because he has to market the company properly, because he has to draw attention of other companies, to actually sell the "product" he provides to rent.
+  - My takeaway of this project was a great memory and well spent time with a lot of interesting people. 
+
+
 
 <!-- Use the same stucture above for the rest of your featured projects. -->
 
