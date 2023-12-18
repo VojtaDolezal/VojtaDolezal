@@ -13,6 +13,10 @@
 
 Hi! My name is Vojta Doležal. I am 22 years old Film maker based in Prague, where I also study a University of Creative communication. I dedicated my time to visuals for 7 years and 3 years full-time. I become from a small czech city called Česká Třebová, which is situated in Pardubice region. Currently I spend most of the time in Prague, depending on the amount of work I have to finish.
 
+## A little bit more about Me
+- If you don't find me in my room on laptop working, I'm probably at the gym or hanging out with my friends or reading books. I like to keep my actions balanced. So my ideal day has to include work or education (to keep growing mentally), food (to keep the body healthy) and entertainment or relax (to keep my mind healthy). I am very extroverted person so when I meet you for the first time, I will probably tell you 90% of the information about myself. Throughout my entire life I tried many sports, like tennis, table tennis, football, voleyball, MMA (mixed martial arts) and Jiu-Jitsu.
+  Brazilian Jiu-Jitsu taught me a lot and I got biggest takeaway out of it. This might sound a little bit morbid, but I just loved the science of choking, sparring with my friends and just training in general. My sensei was and is a very tough guy and he taught me to a solid discipline. And that is the main fact that forced me to take my life very seriously and stop being lazy.
+
 ## Featured Projects
 
 As a freelance Photographer/Videographer I provide a wide spectrum of visual services. From Photoshoots, retouching images, directing shortform commercials, Directing a picture of commercials, to video editing and color grading. I also capture valuable moments of people's lives, such as weddings, concerts,prom balls and behind the scenes.
