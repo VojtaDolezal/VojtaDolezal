@@ -44,11 +44,4 @@ As a freelance Photographer/Videographer I provide a wide spectrum of visual ser
 
 <!-- Use the same stucture above for the rest of your featured projects. -->
 
-## Notes
 
-Numbered comments about each featured project as presenter notes or speaking points.
-
-1. …
-2. …
-3. …
-<!-- And so on. -->
