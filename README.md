@@ -39,9 +39,3 @@ As a freelance Photographer/Videographer I provide a wide spectrum of visual ser
   - P3 Logistic Parks opening was a huge gala corporate event, filled with an entertainment program such as cosplay models and rope dance performers. The company celebrated an opening of 44 000 square meters filled with 12 warehouses, which are going to be rented to other huge companies for storage purposes.
   - My job was to capture moments of the fabulous night. So the client has a content for the great news. Because he has to market the company properly, because he has to draw attention of other companies, to actually sell the "product" he provides to rent.
   - My takeaway of this project was a great memory and well spent time with a lot of interesting people. 
-
-
-
-<!-- Use the same stucture above for the rest of your featured projects. -->
-
-
