@@ -11,7 +11,7 @@
 ![IMG_7112 3](https://github.com/VojtaDolezal/VojtaDolezal/assets/149472633/c484d65c-b2b9-4ab6-b5d4-48db31b06ca3)
 
 
-Hi! My name is Vojta Doležal. I am 22 years old Film maker based in Prague, where I also study a University of Creative communication. I dedicated my time to visuals for 7 years and 3 years full-time. I become from a small czech city called Česká Třebová, which is situated in Pardubice region. Currently I spend most of the time in Prague, depending on the amount of work I have to finish.
+# Hi! My name is Vojta Doležal. I am 22 years old Film maker based in Prague, where I also study a University of Creative communication. I dedicated my time to visuals for 7 years and 3 years full-time. I become from a small czech city called Česká Třebová, which is situated in Pardubice region. Currently I spend most of the time in Prague, depending on the amount of work I have to finish.
 
 ## A little bit more about Me
 - If you don't find me in my room on laptop working, I'm probably at the gym or hanging out with my friends or reading books. I like to keep my actions balanced. So my ideal day has to include work or education (to keep growing mentally), food (to keep the body healthy) and entertainment or relax (to keep my mind healthy). I am very extroverted person so when I meet you for the first time, I will probably tell you 90% of the information about myself. Throughout my entire life I tried many sports, like tennis, table tennis, football, voleyball, MMA (mixed martial arts) and Jiu-Jitsu.
